@@ -1,4 +1,4 @@
-# 
+# exclusive Adobe Audition for macOS Template | lower-thirds + cloud-sync offers the most advanced Adobe Audition for macOS template, with lower-thirds and cloud-sync. Ideal for
 
 
 
